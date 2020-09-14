@@ -6,6 +6,8 @@ Last year I spent wandering along the seacoast. In autumn I returned to my cotta
 
 I patched my torn trousers and changed the cord on my bamboo hat. To strengthen my legs for the journey I had moxa burned on my shins. By then I could think of nothing but the moon at Matsushima. When I sold my cottage and moved to Sampū’s villa, to stay until I started on my journey, I hung this poem on a post in my hut:
 
+草の戸も住替はる代ぞひなの家
+
 *kusa no to mo*  
 *sumikawaru yo zo*  
 *hina no ie*  
