@@ -13,6 +13,3 @@ I patched my torn trousers and changed the cord on my bamboo hat. To strengthen 
 Even a thatched hut  
 May change with a new owner  
 Into a doll’s house.  
-
-| *kusa no to mo*  *sumikawaru yo zo*  *hina no ie*   | Even a thatched hut  May change with a new owner  Into a doll’s house.  |
-
